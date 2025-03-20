@@ -1,1 +1,2 @@
-question codechef mei delega?
+nhi bhai, kidhr hai
+steps batana ek baar 
